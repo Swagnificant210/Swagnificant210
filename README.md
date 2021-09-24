@@ -5,6 +5,4 @@
 - 📫 How to reach me biz4u210@gmail.com 
 
 <!---
-Swagnificant210/Swagnificant210 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Swagnificant210/Swagnificant210 is a ✨ special ✨ repository because wtf does this even mean? 
